@@ -1,0 +1,1 @@
+This is just a place to put my website files on that I need direct links for because Google Drive doesn't provide direct file links at the moment. It is okay for you to use these files for any use with credit.
